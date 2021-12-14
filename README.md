@@ -1,0 +1,2 @@
+# latihan-piton
+mumet kunyuk
